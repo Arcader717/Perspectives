@@ -21,3 +21,6 @@ By making this project entirely Open Source, it will show that nothing is censor
 ## Control of each perspective
 
 Since people are naturally biased, both me and my friend will tell our perspectives, and will not change the wording of the other section. No section will come first. Neutral perspective is only for the absolute facts. We must come to an agreement on the wording and exact facts given in the article.
+
+
+-# Written by Online?
